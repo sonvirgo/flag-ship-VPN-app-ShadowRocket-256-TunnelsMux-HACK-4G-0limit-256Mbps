@@ -38,7 +38,7 @@ App iOS iPhone chính chủ độc quyền TQ VVIP phát triền bởi 10% tinh 
 
 [![Everything Is AWESOME](https://img.youtube.com/vi/JdcoDcOBtCI/0.jpg)](https://www.youtube.com/watch?v=JdcoDcOBtCI "Everything Is AWESOME")
 
-https://github.com/sonvirgo/iOS-iPhone-4G-Viettel-0nen-0limit-256Mbps-hack-Psiphon/releases/tag/v1.0.2
+https://github.com/sonvirgo/flag-ship-iOS-iPhone-app-0nen-ShadowRocket-256-TunnelsMux-HACK-4G-Viettel-0limit-256Mbps/releases/tag/2025.VVIP
 
 [![Github All Releases](https://img.shields.io/github/downloads/sonvirgo/Viettel-0-internet-free-32Mbps/total.svg)]()
 
