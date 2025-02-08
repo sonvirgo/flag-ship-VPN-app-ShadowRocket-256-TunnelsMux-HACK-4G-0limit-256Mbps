@@ -40,7 +40,7 @@ App iOS iPhone chính chủ độc quyền TQ VVIP phát triền bởi 10% tinh 
 
 https://github.com/sonvirgo/flag-ship-iOS-iPhone-app-0nen-ShadowRocket-256-TunnelsMux-HACK-4G-Viettel-0limit-256Mbps/releases/tag/2025.VVIP
 
-[![Github All Releases](https://img.shields.io/github/downloads/sonvirgo/Viettel-0-internet-free-32Mbps/total.svg)]()
+[![Github All Releases](https://img.shields.io/github/downloads/sonvirgo/Viettel-0-internet-free-32Mbps/total.svg)]()[![Download iOS-64-TunnlesMux-4G-Viettel-0nen-0limit](https://img.shields.io/sourceforge/dt/viettel-0d-internet-free-32bps.svg)](https://sourceforge.net/projects/viettel-0d-internet-free-32bps/files/latest/download)
 
 ![Screenshot_20241112-090303](https://github.com/user-attachments/assets/b8a85280-8603-4e3e-be0a-d4396fc9f1bd)
 
