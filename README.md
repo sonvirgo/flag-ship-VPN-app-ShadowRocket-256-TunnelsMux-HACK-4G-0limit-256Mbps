@@ -3,7 +3,7 @@
 
 [![Github All Releases](https://img.shields.io/github/downloads/sonvirgo/Viettel-0-internet-free-32Mbps/total.svg)](https://github.com/sonvirgo/flag-ship-iOS-iPhone-app-0nen-ShadowRocket-256-TunnelsMux-HACK-4G-Viettel-0limit-256Mbps/releases/tag/2025.VVIP)[![Download iOS-64-TunnlesMux-4G-Viettel-0nen-0limit](https://img.shields.io/sourceforge/dt/viettel-0d-internet-free-32bps.svg)](https://sourceforge.net/projects/viettel-0d-internet-free-32bps/files/latest/download)[![Download sonvirgo.github.io](https://img.shields.io/sourceforge/dt/sonvirgo-github-io.svg)](https://sourceforge.net/projects/sonvirgo-github-io/files/latest/download)
 
-
+[![Everything Is AWESOME](https://img.youtube.com/vi/yzuFPpuunqU/0.jpg)](https://www.youtube.com/watch?v=yzuFPpuunqU "Everything Is AWESOME")
 
 https://github.com/user-attachments/assets/d77a21c3-9791-48da-95cf-a575bbe07694
 
