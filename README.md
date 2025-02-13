@@ -1,3 +1,7 @@
+## License
+
+This software is sold as a proprietary product. A license to use this software is granted only to those who have completed the payment process. For full license terms, please refer to the [Proprietary-License](./LICENSE) file.
+
 # TRANG WEB CHÍNH THỨC - OFFICIAL PORTAL Flag-Ship APP iOS iPhone HACK 4G VIETTEL 0 NỀN 256 LUỒNG (aka -> Tunnels) - ZL 0387554874 
 ![image](https://github.com/user-attachments/assets/8401a6e1-f69a-42f6-a72c-fb023c816642)![image](https://github.com/user-attachments/assets/cbf279ef-71bb-439b-be90-432eb66d17eb)
 
